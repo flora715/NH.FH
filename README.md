@@ -62,7 +62,7 @@
 
 但我常常会梦到这些、那时在冥界的场景。每每醒来，便会在片刻之间茫然呆滞，骛于前缘迷惑，空叹命数难测。
 
-#### &emsp;&emsp;&emsp;&emsp;&emsp; —— 百里墨冥·内心世界
+#### &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp; —— 百里墨冥·内心世界
 
 <br/>
 
